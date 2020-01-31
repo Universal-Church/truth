@@ -1,3 +1,5 @@
+# A Christian Open Letter to Christian GOP Senators.
+
 *“But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, self-control...”  
 (Galatians 5:22-23)*  
   
